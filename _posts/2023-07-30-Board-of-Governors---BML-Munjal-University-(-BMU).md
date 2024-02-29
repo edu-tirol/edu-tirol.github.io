@@ -1,0 +1,1 @@
+[Board of Governors - BML Munjal University ( BMU)](https://qi.tc/qi/115936)

@@ -1,0 +1,1 @@
+[@uofglasgow - University news - AI-driven ‘thermal attack ’ system reveals passwords in seconds](https://qi.tc/qi/110446)

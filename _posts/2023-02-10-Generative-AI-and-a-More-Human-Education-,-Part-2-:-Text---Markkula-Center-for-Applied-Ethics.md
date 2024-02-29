@@ -1,0 +1,1 @@
+[Generative AI and a More Human Education , Part 2 : Text - Markkula Center for Applied Ethics](https://qi.tc/qi/111306)

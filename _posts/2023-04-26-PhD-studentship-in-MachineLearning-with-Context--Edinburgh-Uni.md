@@ -1,0 +1,1 @@
+[PhD studentship in #MachineLearning with Context   @Edinburgh Uni](https://qi.tc/qi/112960)

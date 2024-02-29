@@ -1,0 +1,1 @@
+[#Researcher ( A I & Policing ) at Sheffield Hallam University  https://www.jobs.ac.uk/job/CUB819/researcher-ai-and-policing ](https://qi.tc/qi/1523)

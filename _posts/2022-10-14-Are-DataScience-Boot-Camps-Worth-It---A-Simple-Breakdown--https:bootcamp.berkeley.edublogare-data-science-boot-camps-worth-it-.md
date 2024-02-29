@@ -1,0 +1,1 @@
+[Are #DataScience Boot Camps Worth It ? A Simple Breakdown  https://bootcamp.berkeley.edu/blog/are-data-science-boot-camps-worth-it/ ](https://qi.tc/qi/1784)

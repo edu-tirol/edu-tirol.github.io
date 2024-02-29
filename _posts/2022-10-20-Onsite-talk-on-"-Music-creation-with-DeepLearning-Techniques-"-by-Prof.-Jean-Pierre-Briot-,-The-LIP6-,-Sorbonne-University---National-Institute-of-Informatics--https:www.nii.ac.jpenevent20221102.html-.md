@@ -1,0 +1,1 @@
+[Onsite talk on " Music creation with #DeepLearning Techniques " by Prof. Jean-Pierre Briot , The LIP6 , Sorbonne University - National Institute of Informatics  https://www.nii.ac.jp/en/event/2022/1102.html ](https://qi.tc/qi/3102)

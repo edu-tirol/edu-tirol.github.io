@@ -1,0 +1,1 @@
+[Why is #MachineLearning Trending in Medical #Research but not in Our Doctor’s Offices ? - Penn #Bioengineering Blog](https://qi.tc/qi/113729)

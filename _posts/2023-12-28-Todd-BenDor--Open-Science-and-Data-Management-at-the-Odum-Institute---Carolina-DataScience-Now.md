@@ -1,0 +1,1 @@
+[Todd BenDor   Open Science and Data Management at the Odum Institute - Carolina #DataScience Now](https://qi.tc/qi/118805)

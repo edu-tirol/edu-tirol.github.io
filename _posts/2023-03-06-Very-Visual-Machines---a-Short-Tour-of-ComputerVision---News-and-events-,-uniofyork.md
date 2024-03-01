@@ -1,0 +1,1 @@
+[Very Visual Machines - a Short Tour of #ComputerVision - News and events , @uniofyork](https://qi.tc/qi/111850)

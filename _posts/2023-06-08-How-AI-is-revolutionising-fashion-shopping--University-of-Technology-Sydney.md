@@ -1,0 +1,1 @@
+[How AI is revolutionising fashion shopping   University of Technology Sydney](https://qi.tc/qi/113909)

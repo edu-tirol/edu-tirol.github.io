@@ -1,0 +1,1 @@
+[Faculty invited to learning community on #ArtificialIntelligence and research writing ](https://qi.tc/qi/110121)

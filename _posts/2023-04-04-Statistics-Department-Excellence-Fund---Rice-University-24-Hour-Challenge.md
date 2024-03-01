@@ -1,0 +1,1 @@
+[#Statistics Department Excellence Fund - @Rice University 24-Hour Challenge](https://qi.tc/qi/112503)

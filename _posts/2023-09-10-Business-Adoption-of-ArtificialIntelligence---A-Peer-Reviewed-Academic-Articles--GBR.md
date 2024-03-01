@@ -1,0 +1,1 @@
+[Business Adoption of #ArtificialIntelligence - A Peer-Reviewed Academic Articles   GBR](https://qi.tc/qi/117383)

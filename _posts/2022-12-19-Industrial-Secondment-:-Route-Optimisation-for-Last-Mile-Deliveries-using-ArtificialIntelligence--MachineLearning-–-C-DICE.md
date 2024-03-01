@@ -1,0 +1,1 @@
+[Industrial Secondment : Route Optimisation for Last Mile Deliveries using #ArtificialIntelligence / #MachineLearning – C-DICE](https://qi.tc/qi/110296)

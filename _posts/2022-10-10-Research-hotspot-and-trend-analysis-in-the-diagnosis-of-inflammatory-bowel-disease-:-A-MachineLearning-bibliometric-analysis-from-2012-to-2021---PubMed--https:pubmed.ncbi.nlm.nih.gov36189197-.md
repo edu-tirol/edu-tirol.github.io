@@ -1,0 +1,1 @@
+[#Research hotspot and trend analysis in the diagnosis of inflammatory bowel disease : A #MachineLearning bibliometric analysis from 2012 to 2021 - PubMed  https://pubmed.ncbi.nlm.nih.gov/36189197/ ](https://qi.tc/qi/838)

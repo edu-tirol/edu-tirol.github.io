@@ -1,0 +1,1 @@
+[Mar 11 ( Fri ) @ 11:30am : " Domain Specific #MachineLearning – A No-Free-Lunch Perspective , ” Matthew Nero , ECE PhD Defense   Electrical and Computer Engineering   @ucsantabarbara](https://qi.tc/qi/118870)

@@ -1,0 +1,1 @@
+[The Philosophy of #DeepLearning   Science and Society](https://qi.tc/qi/111152)

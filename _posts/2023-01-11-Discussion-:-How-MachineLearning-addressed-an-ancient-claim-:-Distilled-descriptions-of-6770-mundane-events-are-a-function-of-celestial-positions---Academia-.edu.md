@@ -1,0 +1,1 @@
+[Discussion : How #MachineLearning addressed an ancient claim : Distilled descriptions of 6770 mundane events are a function of celestial positions - Academia .edu](https://qi.tc/qi/110641)

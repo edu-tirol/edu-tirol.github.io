@@ -1,0 +1,1 @@
+[Taking a swing at better baseball scheduling - Department of Applied Mathematics and #Statistics](https://qi.tc/qi/111540)

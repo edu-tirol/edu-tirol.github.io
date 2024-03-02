@@ -1,0 +1,1 @@
+[( PDF) Geotechnologies and #ArtificialIntelligence as a Tool of Riparian Forest Management   IJAERS Journal - Academia .edu](https://qi.tc/qi/119078)

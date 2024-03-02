@@ -1,0 +1,1 @@
+[Philosophy of #Statistical Mechanics ( Stanford Encyclopedia of Philosophy )](https://qi.tc/qi/113795)

@@ -1,0 +1,1 @@
+[Model That Uses #MachineLearning Methods and Patient Data at Hospital Arrival Predicts Strokes More Accurately than Current System   @CarnegieMellon 's Heinz College](https://qi.tc/qi/112901)

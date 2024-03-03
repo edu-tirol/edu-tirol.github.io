@@ -1,0 +1,1 @@
+[University of Arizona #DataAnalytics Boot Camp   Learn #DataAnalytics in 24 Weeks   Landing @Facebook 1](https://qi.tc/qi/111075)

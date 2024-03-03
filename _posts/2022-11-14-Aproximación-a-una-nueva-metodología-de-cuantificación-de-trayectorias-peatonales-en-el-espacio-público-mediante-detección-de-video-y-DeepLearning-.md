@@ -1,0 +1,1 @@
+[Aproximación a una nueva metodología de cuantificación de trayectorias peatonales en el espacio público mediante detección de video y #DeepLearning ](https://qi.tc/qi/8849)

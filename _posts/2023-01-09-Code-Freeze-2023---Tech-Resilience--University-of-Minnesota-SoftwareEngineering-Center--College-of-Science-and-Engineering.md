@@ -1,0 +1,1 @@
+[Code Freeze 2023 - Tech Resilience   University of Minnesota #SoftwareEngineering Center   College of Science and Engineering](https://qi.tc/qi/110604)

@@ -1,0 +1,1 @@
+[January 26 , 2023 Recap : Advancing Education , Training , and Care - Carolina #DataScience Now](https://qi.tc/qi/117482)

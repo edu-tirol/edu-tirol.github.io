@@ -1,0 +1,1 @@
+[Rensselaer #Researcher Uses #ArtificialIntelligence To Discover New Materials for Advanced Computing   News & Events](https://qi.tc/qi/113690)

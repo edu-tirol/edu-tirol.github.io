@@ -1,0 +1,1 @@
+[Responsible DS+A I Speaker Series : Anikó Hannák [CANCELED]](https://qi.tc/qi/119173)

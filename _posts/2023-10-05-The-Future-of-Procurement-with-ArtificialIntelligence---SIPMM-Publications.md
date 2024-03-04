@@ -1,0 +1,1 @@
+[The Future of Procurement with #ArtificialIntelligence - SIPMM Publications](https://qi.tc/qi/117896)

@@ -1,0 +1,1 @@
+[The Application & Impact of #ArtificialIntelligence on Digital Supply Chain - SIPMM Publications](https://qi.tc/qi/116543)

@@ -1,0 +1,1 @@
+[#DataScience Racial Equity Advisory Committee - The #DataScience Institute at @Columbia](https://qi.tc/qi/114258)

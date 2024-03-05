@@ -1,0 +1,1 @@
+[In demand jobs : What does it take to become a data analyst ?](https://qi.tc/qi/111448)

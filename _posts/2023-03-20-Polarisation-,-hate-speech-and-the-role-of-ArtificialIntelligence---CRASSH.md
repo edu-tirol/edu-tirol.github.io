@@ -1,0 +1,1 @@
+[Polarisation , hate speech and the role of #ArtificialIntelligence - CRASSH](https://qi.tc/qi/112164)

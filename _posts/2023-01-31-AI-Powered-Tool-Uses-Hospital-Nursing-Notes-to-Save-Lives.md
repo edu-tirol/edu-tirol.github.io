@@ -1,0 +1,1 @@
+[AI-Powered Tool Uses Hospital Nursing Notes to Save Lives](https://qi.tc/qi/111070)

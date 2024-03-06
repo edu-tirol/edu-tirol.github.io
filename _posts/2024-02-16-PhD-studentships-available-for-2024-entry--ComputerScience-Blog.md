@@ -1,0 +1,1 @@
+[PhD studentships available for 2024 entry   #ComputerScience Blog](https://qi.tc/qi/119267)

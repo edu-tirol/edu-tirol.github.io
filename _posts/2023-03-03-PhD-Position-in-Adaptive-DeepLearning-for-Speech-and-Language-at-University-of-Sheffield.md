@@ -1,0 +1,1 @@
+[PhD Position in Adaptive #DeepLearning for Speech and Language at University of Sheffield](https://qi.tc/qi/111805)

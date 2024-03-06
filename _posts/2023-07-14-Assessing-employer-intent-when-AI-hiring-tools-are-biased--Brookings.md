@@ -1,0 +1,1 @@
+[Assessing employer intent when AI hiring tools are biased   Brookings](https://qi.tc/qi/114540)

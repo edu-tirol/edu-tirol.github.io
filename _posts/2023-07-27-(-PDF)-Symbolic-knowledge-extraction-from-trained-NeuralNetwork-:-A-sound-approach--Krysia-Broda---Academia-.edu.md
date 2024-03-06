@@ -1,0 +1,1 @@
+[( PDF) Symbolic knowledge extraction from trained #NeuralNetwork : A sound approach   Krysia Broda - Academia .edu](https://qi.tc/qi/115354)

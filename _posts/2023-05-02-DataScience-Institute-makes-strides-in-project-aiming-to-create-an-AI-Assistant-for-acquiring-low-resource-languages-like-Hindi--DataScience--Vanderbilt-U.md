@@ -1,0 +1,1 @@
+[#DataScience Institute makes strides in project aiming to create an AI Assistant for acquiring low-resource languages like Hindi   #DataScience   @Vanderbilt U](https://qi.tc/qi/113085)

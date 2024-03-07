@@ -1,0 +1,1 @@
+[Center for Digital Agriculture leads undergrad research program on #MachineLearning , AI practices   College of Agricultural , Consumer and Environmental Sciences   @Illinois_Alma](https://qi.tc/qi/112985)

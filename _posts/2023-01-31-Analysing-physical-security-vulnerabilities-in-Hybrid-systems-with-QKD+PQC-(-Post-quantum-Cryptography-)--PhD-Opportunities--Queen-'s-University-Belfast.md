@@ -1,0 +1,1 @@
+[Analysing physical security vulnerabilities in Hybrid systems with QKD+PQC ( Post quantum Cryptography )   PhD Opportunities   Queen 's University Belfast](https://qi.tc/qi/111065)

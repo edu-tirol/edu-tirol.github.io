@@ -1,0 +1,1 @@
+[Introduction to #ComputerScience and Programming   Electrical Engineering and #ComputerScience   @MIT OpenCourseWare](https://qi.tc/qi/110398)

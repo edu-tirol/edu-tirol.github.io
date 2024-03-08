@@ -1,0 +1,1 @@
+[AI , invertebrates , and the risk of living absurdly   Philosophy , Logic and Scientific Method](https://qi.tc/qi/112298)

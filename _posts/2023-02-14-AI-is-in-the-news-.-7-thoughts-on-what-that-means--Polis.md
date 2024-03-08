@@ -1,0 +1,1 @@
+[AI is in the news . 7 thoughts on what that means   Polis](https://qi.tc/qi/111381)

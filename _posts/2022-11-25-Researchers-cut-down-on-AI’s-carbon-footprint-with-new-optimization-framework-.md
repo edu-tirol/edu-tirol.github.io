@@ -1,0 +1,1 @@
+[Researchers cut down on AI’s carbon footprint with new optimization framework ](https://qi.tc/qi/56935)

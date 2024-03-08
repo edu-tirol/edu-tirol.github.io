@@ -1,0 +1,1 @@
+[UOH-TA-0036 #Lecturer in the Centre of Excellence for #DataScience , #ArtificialIntelligence , and Modelling ( DAIM ) – Sport , Exercise and Rehabilitation Science - Jobs at the University of Hull](https://qi.tc/qi/113713)

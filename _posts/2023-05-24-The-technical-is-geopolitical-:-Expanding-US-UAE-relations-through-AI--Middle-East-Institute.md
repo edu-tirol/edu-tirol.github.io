@@ -1,0 +1,1 @@
+[The technical is geopolitical : Expanding US-UAE relations through AI   Middle East Institute](https://qi.tc/qi/113583)

@@ -1,0 +1,1 @@
+[College of Engineering - Computer science research project aims to maintain 6G connectivity despite mobility](https://qi.tc/qi/110303)

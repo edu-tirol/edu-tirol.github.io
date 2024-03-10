@@ -1,0 +1,1 @@
+[How the Defense industry is playing catch-up in #ArtificialIntelligence - Center for Security and Emerging Technology](https://qi.tc/qi/114361)

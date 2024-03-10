@@ -1,0 +1,1 @@
+[Dr John Siddorn appointed as NOC 's new Chief Scientist and Director of Data , Science & Technology   National Oceanography Centre](https://qi.tc/qi/113299)

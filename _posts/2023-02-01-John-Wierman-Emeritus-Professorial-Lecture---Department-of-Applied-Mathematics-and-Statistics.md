@@ -1,0 +1,1 @@
+[John Wierman Emeritus Professorial Lecture - Department of Applied Mathematics and #Statistics](https://qi.tc/qi/111108)

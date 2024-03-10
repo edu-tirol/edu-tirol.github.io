@@ -1,0 +1,1 @@
+[Experiential AI for Finance Leaders [VIDEO] - Institute for Experiential AI](https://qi.tc/qi/112580)

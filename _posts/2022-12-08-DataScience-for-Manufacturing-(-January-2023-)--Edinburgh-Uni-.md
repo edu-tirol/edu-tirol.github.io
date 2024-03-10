@@ -1,0 +1,1 @@
+[#DataScience for Manufacturing ( January 2023 )   @Edinburgh Uni ](https://qi.tc/qi/110094)

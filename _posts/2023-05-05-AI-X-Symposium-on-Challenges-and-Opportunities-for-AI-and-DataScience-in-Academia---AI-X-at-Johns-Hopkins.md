@@ -1,0 +1,1 @@
+[AI-X Symposium on Challenges and Opportunities for AI and #DataScience in Academia - AI-X at @Johns Hopkins](https://qi.tc/qi/113156)

@@ -1,0 +1,1 @@
+[( PDF) Learning in the Recurrent Random #NeuralNetwork   Erol Gelenbe - Academia .edu](https://qi.tc/qi/115348)

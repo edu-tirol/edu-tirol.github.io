@@ -1,0 +1,1 @@
+[Using SHAP values and #MachineLearning to understand trends in the transient stability limit - Strathprints](https://qi.tc/qi/112694)

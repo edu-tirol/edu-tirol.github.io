@@ -1,0 +1,1 @@
+[Media Coverage - BML Munjal University](https://qi.tc/qi/116167)

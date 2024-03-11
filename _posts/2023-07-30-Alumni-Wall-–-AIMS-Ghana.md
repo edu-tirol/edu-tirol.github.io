@@ -1,0 +1,1 @@
+[Alumni Wall – AIMS Ghana](https://qi.tc/qi/115703)

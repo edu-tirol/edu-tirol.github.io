@@ -1,0 +1,1 @@
+[Quantum encryption algorithm cracked in minutes by computer running Magma - Sydney Mathematical #Research Institute](https://qi.tc/qi/111836)

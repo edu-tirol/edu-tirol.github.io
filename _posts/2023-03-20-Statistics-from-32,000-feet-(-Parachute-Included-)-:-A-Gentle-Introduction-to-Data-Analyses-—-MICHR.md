@@ -1,0 +1,1 @@
+[#Statistics from 32,000 feet ( Parachute Included ) : A Gentle Introduction to Data Analyses — MICHR](https://qi.tc/qi/112171)

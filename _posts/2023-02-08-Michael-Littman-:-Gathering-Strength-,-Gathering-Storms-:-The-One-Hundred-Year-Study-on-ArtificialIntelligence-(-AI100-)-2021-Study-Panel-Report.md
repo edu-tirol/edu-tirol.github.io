@@ -1,0 +1,1 @@
+[Michael Littman : Gathering Strength , Gathering Storms : The One Hundred Year Study on #ArtificialIntelligence ( AI100 ) 2021 Study Panel Report](https://qi.tc/qi/111253)

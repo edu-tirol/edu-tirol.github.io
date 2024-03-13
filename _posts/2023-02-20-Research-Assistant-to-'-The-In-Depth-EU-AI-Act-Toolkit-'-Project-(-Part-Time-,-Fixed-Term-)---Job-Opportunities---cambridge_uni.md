@@ -1,0 +1,1 @@
+[#Research Assistant to ' The In-Depth EU AI Act Toolkit ' Project ( Part Time , Fixed Term ) - Job Opportunities - @cambridge_uni](https://qi.tc/qi/111508)

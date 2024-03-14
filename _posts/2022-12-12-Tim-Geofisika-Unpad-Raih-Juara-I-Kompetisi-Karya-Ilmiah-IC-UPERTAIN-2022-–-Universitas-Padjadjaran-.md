@@ -1,0 +1,1 @@
+[Tim Geofisika Unpad Raih Juara I Kompetisi Karya Ilmiah IC-UPERTAIN 2022 – Universitas Padjadjaran ](https://qi.tc/qi/110170)

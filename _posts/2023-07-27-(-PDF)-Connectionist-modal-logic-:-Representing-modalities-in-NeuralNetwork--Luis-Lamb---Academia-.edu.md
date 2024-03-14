@@ -1,0 +1,1 @@
+[( PDF) Connectionist modal logic : Representing modalities in #NeuralNetwork   Luis Lamb - Academia .edu](https://qi.tc/qi/115363)

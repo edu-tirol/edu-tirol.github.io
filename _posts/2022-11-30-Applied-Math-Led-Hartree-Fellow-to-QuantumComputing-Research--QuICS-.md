@@ -1,0 +1,1 @@
+[Applied Math Led Hartree Fellow to #QuantumComputing #Research   QuICS ](https://qi.tc/qi/109953)

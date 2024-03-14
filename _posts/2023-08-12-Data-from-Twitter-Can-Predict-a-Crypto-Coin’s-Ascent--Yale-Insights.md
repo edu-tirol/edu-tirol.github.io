@@ -1,0 +1,1 @@
+[Data from @Twitter Can Predict a Crypto Coin’s Ascent   Yale Insights](https://qi.tc/qi/116456)

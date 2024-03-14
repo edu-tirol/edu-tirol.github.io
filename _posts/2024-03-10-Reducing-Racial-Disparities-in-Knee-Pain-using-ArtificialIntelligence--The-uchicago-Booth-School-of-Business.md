@@ -1,0 +1,1 @@
+[Reducing Racial Disparities in Knee Pain using #ArtificialIntelligence   The @uchicago Booth School of Business](https://qi.tc/qi/119405)

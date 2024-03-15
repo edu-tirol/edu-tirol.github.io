@@ -1,0 +1,1 @@
+[AI and #DataScience Day at UNIC – #ArtificialIntelligence Lab](https://qi.tc/qi/113255)

@@ -1,0 +1,1 @@
+[How Will AI Transform Industries and Organizations ? - Knowledge at Wharton](https://qi.tc/qi/118857)

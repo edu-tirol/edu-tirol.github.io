@@ -1,0 +1,1 @@
+[#DataScience professor and recent grad team up to pilot NSF-funded Cyberteam project   Bryant News](https://qi.tc/qi/112009)

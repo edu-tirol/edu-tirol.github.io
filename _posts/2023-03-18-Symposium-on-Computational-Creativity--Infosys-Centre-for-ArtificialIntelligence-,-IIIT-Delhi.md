@@ -1,0 +1,1 @@
+[Symposium on Computational Creativity   Infosys Centre for #ArtificialIntelligence , IIIT-Delhi](https://qi.tc/qi/112142)

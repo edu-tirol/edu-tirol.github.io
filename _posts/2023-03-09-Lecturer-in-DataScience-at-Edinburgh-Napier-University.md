@@ -1,0 +1,1 @@
+[#Lecturer in #DataScience at Edinburgh Napier University](https://qi.tc/qi/111964)

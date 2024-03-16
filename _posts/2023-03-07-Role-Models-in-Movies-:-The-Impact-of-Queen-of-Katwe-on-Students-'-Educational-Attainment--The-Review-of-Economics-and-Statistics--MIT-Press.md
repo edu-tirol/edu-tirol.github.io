@@ -1,0 +1,1 @@
+[Role Models in Movies : The Impact of Queen of Katwe on Students ' Educational Attainment   The Review of Economics and #Statistics   @MIT Press](https://qi.tc/qi/111871)

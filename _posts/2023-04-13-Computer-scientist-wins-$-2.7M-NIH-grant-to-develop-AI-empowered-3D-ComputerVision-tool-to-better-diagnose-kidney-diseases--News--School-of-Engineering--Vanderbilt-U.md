@@ -1,0 +1,1 @@
+[Computer scientist wins $ 2.7M NIH grant to develop AI-empowered 3D #ComputerVision tool to better diagnose kidney diseases   News   School of Engineering   @Vanderbilt U](https://qi.tc/qi/112660)

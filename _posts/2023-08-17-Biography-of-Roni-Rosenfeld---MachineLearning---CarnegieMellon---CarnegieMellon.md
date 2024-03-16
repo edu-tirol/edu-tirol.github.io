@@ -1,0 +1,1 @@
+[Biography of Roni Rosenfeld - #MachineLearning - @CarnegieMellon - @CarnegieMellon](https://qi.tc/qi/116681)

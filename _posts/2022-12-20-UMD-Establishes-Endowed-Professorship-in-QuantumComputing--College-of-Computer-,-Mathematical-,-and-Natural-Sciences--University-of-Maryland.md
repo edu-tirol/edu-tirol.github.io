@@ -1,0 +1,1 @@
+[UMD Establishes Endowed Professorship in #QuantumComputing   College of Computer , Mathematical , and Natural Sciences   University of Maryland](https://qi.tc/qi/110334)

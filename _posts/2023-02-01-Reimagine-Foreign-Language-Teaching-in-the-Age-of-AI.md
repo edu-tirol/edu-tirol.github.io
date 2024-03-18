@@ -1,0 +1,1 @@
+[Reimagine Foreign Language Teaching in the Age of AI](https://qi.tc/qi/111105)

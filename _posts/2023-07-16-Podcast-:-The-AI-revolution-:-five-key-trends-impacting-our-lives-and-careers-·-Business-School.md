@@ -1,0 +1,1 @@
+[Podcast : The AI revolution : five key trends impacting our lives and careers · Business School](https://qi.tc/qi/114688)

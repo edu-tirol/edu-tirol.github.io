@@ -1,0 +1,1 @@
+[ChatGPT is not all you need . A State of the Art Review of large Generative AI models   GRACE : Global Review of AI Community Ethics](https://qi.tc/qi/111188)

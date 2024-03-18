@@ -1,0 +1,1 @@
+[UC Davis gets $ 15 million to develop and assess AI for breast #Cancer detection , risk model ](https://qi.tc/qi/7310)

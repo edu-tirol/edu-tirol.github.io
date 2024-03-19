@@ -1,0 +1,1 @@
+[Oxford joins Schmidt Futures ’ $ 148 million global initiative to accelerate use of AI in scientific research   University of Oxford ](https://qi.tc/qi/6109)

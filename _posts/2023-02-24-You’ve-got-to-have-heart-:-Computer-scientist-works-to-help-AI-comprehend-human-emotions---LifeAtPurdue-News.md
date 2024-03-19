@@ -1,0 +1,1 @@
+[You’ve got to have heart : Computer scientist works to help AI comprehend human emotions - @LifeAtPurdue News](https://qi.tc/qi/111647)

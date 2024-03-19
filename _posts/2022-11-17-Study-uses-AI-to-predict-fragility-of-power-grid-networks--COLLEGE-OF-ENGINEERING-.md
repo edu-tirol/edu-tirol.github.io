@@ -1,0 +1,1 @@
+[Study uses AI to predict fragility of power grid networks   COLLEGE OF ENGINEERING ](https://qi.tc/qi/9374)

@@ -1,0 +1,1 @@
+[Undergraduate Certificate in AI Fundamentals and Applications - Department of Engineering Education](https://qi.tc/qi/115905)

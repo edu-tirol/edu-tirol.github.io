@@ -1,0 +1,1 @@
+[【Alumni Seminar】ChatGPT Unravelled : Surfing the Wave of AI](https://qi.tc/qi/112788)

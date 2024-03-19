@@ -1,0 +1,1 @@
+[Sylvester James Gates , Jr. Returns to UMD Faculty as Clark Leadership Chair in Science   College of Computer , Mathematical , and Natural Sciences   University of Maryland](https://qi.tc/qi/117001)

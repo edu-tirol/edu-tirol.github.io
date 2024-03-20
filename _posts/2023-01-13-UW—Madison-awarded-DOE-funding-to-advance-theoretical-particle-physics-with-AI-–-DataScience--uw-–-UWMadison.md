@@ -1,0 +1,1 @@
+[UW—Madison awarded DOE funding to advance theoretical particle physics with AI – #DataScience @ uw – @UWMadison](https://qi.tc/qi/110708)

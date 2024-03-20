@@ -1,0 +1,1 @@
+[Compositionality and functorial invariants in #MachineLearning - ORA - Oxford University #Research Archive](https://qi.tc/qi/111401)

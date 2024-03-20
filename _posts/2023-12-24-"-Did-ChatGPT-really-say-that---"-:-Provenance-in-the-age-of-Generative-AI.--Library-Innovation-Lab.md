@@ -1,0 +1,1 @@
+[" Did ChatGPT really say that ? " : Provenance in the age of Generative AI.   Library Innovation Lab](https://qi.tc/qi/118762)

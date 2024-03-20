@@ -1,0 +1,1 @@
+[Stuart Norcross   #ComputerScience Blog](https://qi.tc/qi/119277)

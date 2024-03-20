@@ -1,0 +1,1 @@
+[Development and international validation of custom-engineered and code-free deep-learning models for detection of plus disease in retinopathy of prematurity : a retrospective study - @UCL Discovery](https://qi.tc/qi/112976)

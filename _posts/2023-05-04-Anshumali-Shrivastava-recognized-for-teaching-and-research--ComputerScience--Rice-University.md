@@ -1,0 +1,1 @@
+[Anshumali Shrivastava recognized for teaching and research   #ComputerScience   @Rice University](https://qi.tc/qi/113139)

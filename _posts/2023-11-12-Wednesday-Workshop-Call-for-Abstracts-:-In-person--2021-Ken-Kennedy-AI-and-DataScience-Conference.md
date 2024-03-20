@@ -1,0 +1,1 @@
+[Wednesday Workshop Call for Abstracts : In-person   2021 Ken Kennedy AI and #DataScience Conference](https://qi.tc/qi/118467)

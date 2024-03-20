@@ -1,0 +1,1 @@
+[Advances in generalizable medical AI   Stanford News](https://qi.tc/qi/112686)

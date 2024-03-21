@@ -1,0 +1,1 @@
+[Newsletter – August 2023   The AUC #DataScience](https://qi.tc/qi/117888)

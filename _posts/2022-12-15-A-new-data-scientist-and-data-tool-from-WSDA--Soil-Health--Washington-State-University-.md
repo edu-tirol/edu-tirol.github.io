@@ -1,0 +1,1 @@
+[A new data scientist and data tool from WSDA   Soil Health   Washington State University ](https://qi.tc/qi/110258)

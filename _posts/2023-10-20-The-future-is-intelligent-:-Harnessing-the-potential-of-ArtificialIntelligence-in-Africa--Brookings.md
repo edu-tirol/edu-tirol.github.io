@@ -1,0 +1,1 @@
+[The future is intelligent : Harnessing the potential of #ArtificialIntelligence in Africa   Brookings](https://qi.tc/qi/118298)

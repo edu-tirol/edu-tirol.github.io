@@ -1,0 +1,1 @@
+[ChatGPT and AI Text Generators : Should Academia Adapt or Resist ?   Harvard Business Publishing Education](https://qi.tc/qi/111176)

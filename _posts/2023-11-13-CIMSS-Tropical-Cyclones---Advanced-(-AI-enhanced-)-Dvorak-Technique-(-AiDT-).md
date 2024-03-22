@@ -1,0 +1,1 @@
+[CIMSS Tropical Cyclones - Advanced ( AI-enhanced ) Dvorak Technique ( AiDT )](https://qi.tc/qi/118490)

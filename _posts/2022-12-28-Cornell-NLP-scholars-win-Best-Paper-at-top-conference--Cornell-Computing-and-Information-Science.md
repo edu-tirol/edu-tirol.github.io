@@ -1,0 +1,1 @@
+[Cornell #NLP scholars win Best Paper at top conference   Cornell Computing and Information Science](https://qi.tc/qi/110450)

@@ -1,0 +1,1 @@
+[Brian Wright Brings #DataScience to Life for Undergraduates at UVA — School of #DataScience](https://qi.tc/qi/112575)

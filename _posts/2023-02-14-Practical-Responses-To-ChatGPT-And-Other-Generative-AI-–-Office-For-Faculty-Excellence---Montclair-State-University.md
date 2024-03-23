@@ -1,0 +1,1 @@
+[Practical Responses To ChatGPT And Other Generative AI – Office For Faculty Excellence - Montclair State University](https://qi.tc/qi/111395)

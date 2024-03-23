@@ -1,0 +1,1 @@
+[Accenture Advances AI #Research as Inaugural Member of Corporate Affiliate Program at Stanford Institute for Human-Centered #ArtificialIntelligence](https://qi.tc/qi/110281)

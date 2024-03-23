@@ -1,0 +1,1 @@
+[Vanderbilt University’s #DataScience Institute hosting free AI Summer workshop   #DataScience   @Vanderbilt U](https://qi.tc/qi/112651)

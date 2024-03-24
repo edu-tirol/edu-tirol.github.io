@@ -1,0 +1,1 @@
+[Professor Fred Chong Named IEEE Fellow – Department of #ComputerScience ](https://qi.tc/qi/110151)

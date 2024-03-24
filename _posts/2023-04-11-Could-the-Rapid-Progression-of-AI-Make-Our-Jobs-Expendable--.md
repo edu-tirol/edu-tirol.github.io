@@ -1,0 +1,1 @@
+[Could the Rapid Progression of AI Make Our Jobs Expendable ?](https://qi.tc/qi/112634)

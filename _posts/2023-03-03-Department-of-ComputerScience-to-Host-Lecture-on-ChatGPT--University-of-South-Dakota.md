@@ -1,0 +1,1 @@
+[Department of #ComputerScience to Host Lecture on ChatGPT   University of South Dakota](https://qi.tc/qi/111799)

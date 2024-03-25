@@ -1,0 +1,1 @@
+[Study a Master of #DataScience ( Professional ) in QLD at JCU - JCU Australia](https://qi.tc/qi/114111)

@@ -1,0 +1,1 @@
+[( PDF) Approximate and Situated Causality in #DeepLearning   Jordi Vallverdú - Academia .edu ](https://qi.tc/qi/8972)

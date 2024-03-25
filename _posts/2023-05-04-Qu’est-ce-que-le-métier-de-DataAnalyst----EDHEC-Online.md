@@ -1,0 +1,1 @@
+[Qu’est-ce que le métier de #DataAnalyst ?   EDHEC Online](https://qi.tc/qi/113120)

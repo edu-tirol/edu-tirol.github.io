@@ -1,0 +1,1 @@
+[Objętościowa rekonstrukcja obrazowa z filtracją nadmiarowej informacji fazowej , DAINA 2 nr 2020/38/L/ST2/00556 , 47/2022   IChF PAN ](https://qi.tc/qi/9059)

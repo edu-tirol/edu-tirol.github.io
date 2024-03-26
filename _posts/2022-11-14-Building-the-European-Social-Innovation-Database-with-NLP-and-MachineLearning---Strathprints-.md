@@ -1,0 +1,1 @@
+[Building the European Social Innovation Database with #NLP and #MachineLearning - Strathprints ](https://qi.tc/qi/8818)

@@ -1,0 +1,1 @@
+[AI and Aging : How Nick Faddis and the Minka Lab are using technology to impact healthcare - University of Southern Indiana](https://qi.tc/qi/112797)

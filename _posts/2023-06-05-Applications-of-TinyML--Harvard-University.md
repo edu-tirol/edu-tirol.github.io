@@ -1,0 +1,1 @@
+[Applications of TinyML   Harvard University](https://qi.tc/qi/113811)

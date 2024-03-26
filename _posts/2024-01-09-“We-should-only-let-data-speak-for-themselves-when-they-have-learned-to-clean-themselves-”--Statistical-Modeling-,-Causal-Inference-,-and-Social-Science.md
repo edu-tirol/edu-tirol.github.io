@@ -1,0 +1,1 @@
+[“We should only let data speak for themselves when they have learned to clean themselves ”   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/118916)

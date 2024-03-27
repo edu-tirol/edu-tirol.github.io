@@ -1,0 +1,1 @@
+[#DeepLearning based synthetic CT from cone beam CT generation for abdominal paediatric radiotherapy - @UCL Discovery](https://qi.tc/qi/112487)

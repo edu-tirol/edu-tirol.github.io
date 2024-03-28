@@ -1,0 +1,1 @@
+[Professor Wins Prize for Her Work on Ethical Concerns of AI](https://qi.tc/qi/114059)

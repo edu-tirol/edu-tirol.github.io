@@ -1,0 +1,1 @@
+[Equity in a World of #ArtificialIntelligence - WICHE Cooperative for Educational Technologies](https://qi.tc/qi/112832)

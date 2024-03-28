@@ -1,0 +1,1 @@
+[Murty Sunak Quantitative and Computing Lab expands #DataScience integration on campus   Claremont McKenna College](https://qi.tc/qi/113801)

@@ -1,0 +1,1 @@
+[UAB secures @NSF grant to help sustain #ArtificialIntelligence - News   UAB](https://qi.tc/qi/110951)

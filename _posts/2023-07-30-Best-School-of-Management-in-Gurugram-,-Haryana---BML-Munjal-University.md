@@ -1,0 +1,1 @@
+[Best School of Management in Gurugram , Haryana - BML Munjal University](https://qi.tc/qi/116149)

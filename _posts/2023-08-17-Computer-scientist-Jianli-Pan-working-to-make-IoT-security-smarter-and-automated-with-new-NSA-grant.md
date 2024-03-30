@@ -1,0 +1,1 @@
+[Computer scientist Jianli Pan working to make IoT security smarter and automated with new NSA grant](https://qi.tc/qi/116670)

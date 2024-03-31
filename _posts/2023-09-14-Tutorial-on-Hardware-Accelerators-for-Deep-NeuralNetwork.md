@@ -1,0 +1,1 @@
+[Tutorial on Hardware Accelerators for Deep #NeuralNetwork](https://qi.tc/qi/117551)

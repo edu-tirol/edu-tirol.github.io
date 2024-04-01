@@ -1,0 +1,1 @@
+[Elon University / Today at Elon / How ChatGPT is changing the way we use #ArtificialIntelligence](https://qi.tc/qi/111356)

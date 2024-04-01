@@ -1,0 +1,1 @@
+[Northeastern’s London AI Workshop Series Joins Academic Theory With Industry Problems - Institute for Experiential AI](https://qi.tc/qi/119155)

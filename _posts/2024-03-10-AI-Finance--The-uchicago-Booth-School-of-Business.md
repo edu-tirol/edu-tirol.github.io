@@ -1,0 +1,1 @@
+[AI Finance   The @uchicago Booth School of Business](https://qi.tc/qi/119406)

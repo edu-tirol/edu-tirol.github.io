@@ -1,0 +1,1 @@
+[Physics and #QuantumComputing   School of Computing and Information   @PittTweet](https://qi.tc/qi/112113)

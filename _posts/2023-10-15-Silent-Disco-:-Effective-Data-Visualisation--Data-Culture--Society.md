@@ -1,0 +1,1 @@
+[Silent Disco : Effective Data Visualisation   Data Culture & Society](https://qi.tc/qi/118212)

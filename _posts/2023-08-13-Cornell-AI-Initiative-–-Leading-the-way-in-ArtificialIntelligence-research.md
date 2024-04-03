@@ -1,0 +1,1 @@
+[Cornell AI Initiative – Leading the way in #ArtificialIntelligence research](https://qi.tc/qi/116520)

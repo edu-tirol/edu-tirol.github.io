@@ -1,0 +1,1 @@
+[SEMINAR : Maximiliano Javier Sosa Andrés ( Uppsala University ) – “Legal uncertainty and its consequences : A naturallanguage processing approach ” – IEB](https://qi.tc/qi/110678)

@@ -1,0 +1,1 @@
+[Britescope : A new laryngoscope , enhanced by #ArtificialIntelligence , with the potential to save lives – W&M News](https://qi.tc/qi/110707)

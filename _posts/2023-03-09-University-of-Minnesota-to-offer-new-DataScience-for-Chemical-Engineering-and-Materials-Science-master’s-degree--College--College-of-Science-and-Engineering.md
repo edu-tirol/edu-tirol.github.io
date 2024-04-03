@@ -1,0 +1,1 @@
+[University of Minnesota to offer new #DataScience for Chemical Engineering and Materials Science master’s degree   College   College of Science and Engineering](https://qi.tc/qi/111950)

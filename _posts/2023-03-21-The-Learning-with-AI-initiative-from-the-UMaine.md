@@ -1,0 +1,1 @@
+[The Learning with AI initiative from the @UMaine](https://qi.tc/qi/112188)

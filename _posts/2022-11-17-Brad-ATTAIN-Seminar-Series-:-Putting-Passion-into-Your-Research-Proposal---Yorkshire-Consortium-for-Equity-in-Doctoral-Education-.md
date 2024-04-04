@@ -1,0 +1,1 @@
+[Brad-ATTAIN Seminar Series : Putting Passion into Your #Research Proposal - Yorkshire Consortium for Equity in Doctoral Education ](https://qi.tc/qi/9494)

@@ -1,0 +1,1 @@
+[Allen School News » Researchers unveil BioTranslator , a #MachineLearning model that bridges biological data and text to accelerate biomedical discovery](https://qi.tc/qi/112474)

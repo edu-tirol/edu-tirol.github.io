@@ -1,0 +1,1 @@
+[Storytellers + Machines - Storytelling in the Age of AI Symposium - School of Digital Arts ( SODA ) – Manchester Metropolitan University](https://qi.tc/qi/113826)

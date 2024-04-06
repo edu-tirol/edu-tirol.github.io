@@ -1,0 +1,1 @@
+[Stanford University Identifies School of #Statistics Professors in the Top 2 Percent Most Cited Scientists Worldwide   #Statistics   College of Liberal Arts](https://qi.tc/qi/110773)

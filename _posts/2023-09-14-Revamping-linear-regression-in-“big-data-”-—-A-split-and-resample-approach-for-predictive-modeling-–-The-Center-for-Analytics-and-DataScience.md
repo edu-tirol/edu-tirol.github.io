@@ -1,0 +1,1 @@
+[Revamping linear regression in “big data ” — A split and resample approach for predictive modeling – The Center for Analytics and #DataScience](https://qi.tc/qi/117557)

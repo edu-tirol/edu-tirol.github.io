@@ -1,0 +1,1 @@
+[CITP Lecture : Lydia Liu -Towards #ResponsibleML in Societal Systems - Center for Information Technology Policy](https://qi.tc/qi/112346)

@@ -1,0 +1,1 @@
+[Transparent labeling of training data may boost trust in #ArtificialIntelligence   @penn_state University](https://qi.tc/qi/113372)
